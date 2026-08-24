@@ -5,10 +5,6 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23BB86FC&size=22&center=true&vCenter=true&width=600&lines=Penetration+Tester+and+Developer;Computer+Engineering;Passionate+about+Cybersecurity+and+Technology;Studying+Computer+Engineering+4nd+Semester+Uniso)](https://github.com/cesarbtakeda/cesarbtakeda)
 
 
-##
-
-##
-
 #
 
 #
